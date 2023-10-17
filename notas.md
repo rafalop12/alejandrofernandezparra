@@ -1,0 +1,1 @@
+-Mis aficiones son jugar a videojuegos y salir con mis amigos,tambien me gusta la musica y soy un gran estudiante.
